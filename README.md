@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **anshikaprajapati124@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1SHdOI7xaMsOeKyxqygkymZspzZFH-QtbO7PHAGovU-Y/edit?usp=sharing](https://docs.google.com/document/d/1SHdOI7xaMsOeKyxqygkymZspzZFH-QtbO7PHAGovU-Y/edit?usp=sharing)
+- 📄 My Resume [https://docs.google.com/document/d/1SHdOI7xaMsOeKyxqygkymZspzZFH-QtbO7PHAGovU-Y/edit?usp=sharing](https://docs.google.com/document/d/1SHdOI7xaMsOeKyxqygkymZspzZFH-QtbO7PHAGovU-Y/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
